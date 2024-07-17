@@ -10,4 +10,6 @@ tumblr: [Heroisk](https://www.tumblr.com/blog/heroisk)
 
 Ao3: [Heroisk](https://archiveofourown.org/users/Heroisk) 
 
+Twitter: [Heroisk_](https://twitter.com/Heroisk_)
+
 ![69c0527f28045127fde2f53ca4463739](https://github.com/user-attachments/assets/45d2f225-b429-4db2-a196-0399c97ddfc5)
